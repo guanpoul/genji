@@ -1,1 +1,7 @@
-# genji
+# Genji
+
+# Hanjo
+
+# SEX
+
+# Fuck
